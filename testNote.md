@@ -1,0 +1,19 @@
+
+
+char:sam
+> are u ok ?
+
+Narration here
+
+safasfsadfasdfsdafasdfsfsdfsafsdafsdfsadfs
+
+char:will
+>nah im finesdafsdafdsfasdfasfasfdsaf
+>asdfdsfasdfsafsfsfsadffffffffffffffffffffffffffffffffffffffffffffffffs
+>asdfdsfasdfsafsfsfsadffffffffffffffffffffffffffffffffffffffffffffffffs
+>asdfdsfasdfsafsfsfsadffffffffffffffffffffffffffffffffffffffffffffffffs
+asdfdsfasdfsafsfsfsadffffffffffffffffffffffffffffffffffffffffffffffffs
+
+adfsaf
+
+Will just said \"Fuck you\" to me
